@@ -19,7 +19,7 @@
 </ul>
 📫 How to reach me:
 
-Email: choquemauricio24@gmail.com
+Email: choquemauricio124@gmail.com
 GitHub: Send me a DM here!
 <!--LinkedIn: linkedin.com/in/tuusuario (si tienes una cuenta)--->
 
